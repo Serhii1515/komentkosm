@@ -1,1 +1,0 @@
-# komentkosm world
